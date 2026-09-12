@@ -1,0 +1,35 @@
+---
+title: "¿Quien pagará los ladrillos rotos por la burbuja inmobiliaria?"
+date: 2007-11-13
+source: https://www.rankia.com/blog/llinares/365085-quien-pagara-ladrillos-rotos-por-burbuja-inmobiliaria
+author: Francisco Llinares Coloma
+blog: Rankia
+---
+
+# ¿Quien pagará los ladrillos rotos por la burbuja inmobiliaria?
+
+Hay muchas personas que están asumiendo un riesgo que no conocen y que, por supuesto, nadie les ha advertido de él. Y lo peor de todo, asumen un riesgo sin ninguna compensación a cambio.
+
+La renta fija de empresas con poca garantía retribuye al inversor con unos intereses mucho más altos que los bonos del estado. Es lógico que quien asume un riesgo superior de perder el principal de su inversión, se vea recompensado por un beneficio acorde al riesgo asumido. Pero como veremos a continuación, el hecho de asumir un mayor riesgo no siempre implica obtener una mayor compensación.
+
+En los últimos años se han firmado varios millones de hipotecas a interés variable. Muchas de estas personas no eran conscientes de que no podían pagar el piso que estaban comprando, pues en el banco les sacaban las cuentas al 2% de interés y nadie les advirtió que era imposible que ese interés se mantuviera durante toda la vida de la hipoteca. Ahora, estas personas ya saben hasta que precio pueden pagar, y si los precios del mercado están por encima de sus posibilidades, sencillamente olvidarán su pretensión de comprar una vivienda.
+
+Aplicando estrictamente la única ley válida para todos los mercados y productos del planeta: "la ley de oferta y demanda", cuando el promedio del 80% de los pisos más baratos de un país, cuesten más de lo que pueden pagar el 80% de los trabajadores que perciben los sueldos más bajos, aplicando al préstamo un interés de un 5% como mínimo, es absolutamente imposible que los pisos sigan subiendo, pues la demanda ya no podrá seguir empujando por muchas ganas de comprar que tengan.
+
+Esa contracción de la demanda se verá agravada por el aumento de la oferta de los millones de pisos comprados como inversión y que se mantienen vacíos, cuando los dueños de estos inmuebles vean que su inversión no se revaloriza al ritmo al que estaban acostumbrados, empezarán a ponerlos a la venta para realizar beneficios, y esta lluvia sobre mojado hará resbalar los precios hacia el único lado posible: a la baja.
+
+Si hay un descenso importante del precio de los inmuebles, los titulares de las hipotecas pueden tener serios problemas. Esto ha ocurrido otras veces y se llama "vaciado de garantías" (la vivienda baja y llega a valer menos importe que el concedido para la hipoteca).
+
+Cuando la persona hipotecada no puede pagar sus mensualidades, el acreedor del préstamo tiene que iniciar un proceso judicial que puede durar un año y medio, y que conlleva un coste alto. Después de ese tiempo consigue recuperar la titularidad del inmueble, entonces tramita el desahucio para obtener la posesión de ese inmueble que por regla general suele ser entregado con graves desperfectos. Después de acometer las reparaciones para poner a la venta la vivienda en buen estado, sumar los intereses de los dos años que no ha percibido ninguna mensualidad y añadir los costes del proceso, es poco probable que recupere el importe integro concedido al hipotecar el piso, a menos que el mercado haya seguido subiendo a un ritmo fuerte.
+
+Para rizar el rizo, un número creciente de familias se están enterando de que si se declaran en quiebra no les pueden desahuciar (antes esta posibilidad sólo era accesible para las empresas), con esta modalidad tiene que haber un concurso de acreedores con las consiguientes quitas. Si se difunde esta moda puede suponer un serio varapalo para los acreedores de las hipotecas.
+
+Los bancos y cajas son conscientes de ese riesgo, y lo tienen en cuenta a la hora de conceder una hipoteca, pero con la nueva moda de empaquetar las hipotecas y convertirlas en títulos transmisibles - con el visto bueno de la C.N.M.V. - las entidades han relajado los requisitos para conceder las hipotecas, pues de todos modos se iban a sacar el riesgo de encima en breve plazo transfiriendo esos títulos.
+
+Por otro lado están las agencias de rating, que calificaban esos títulos al mismo tiempo que cobraban jugosas comisiones por su colocación. Sólo así se puede comprender una calificación de AAA igual a los bonos del estado, para un papel que de hecho asume los riesgos explicados con anterioridad. Se supone que AAA quiere decir riesgo cero.
+
+Y ahora viene la pregunta del millón. ¿Pero a quien se le ha colocado ese papel que ahora a todos les quema en las manos? Pues seguramente a usted querido lector, porque ese papel esta colocado en las carteras de todos los fondos de inversión. En los fondos monetarios y de renta fija a corto plazo legalmente no debería haberse colocado, pues por ley estos fondos no pueden tener activos cuyo vencimiento sea mayor de 18 meses por término medio. Pero eso no ha detenido a nadie, se ha hecho una pirueta circense y como los intereses que pagan estos títulos se revisan cada semestre, a una hipoteca a 30 años se la considera con un vencimiento a seis meses, que es cuando se revisará el tipo de interés. Resultado: como ese papel ahora no lo quiere nadie, se ha demostrado que la revisión de intereses no se puede considerar como vencimiento, pues sin un comprador, no se puede reembolsar la inversión en esos activos. ¡Hasta los fontesoros tienen un porcentaje en su cartera de estos títulos!
+
+Para variar, las entidades financieras se han sacado el riesgo de encima, y ese riesgo lo ha asumido el de siempre: el que tiene unos ahorros en un fondo de inversión y ni siquiera sabe que está jugando a la ruleta rusa con su dinero si explota la burbuja, pues sería el fondo de inversión el que asumiría las pérdidas de las hipotecas en las que no se logre recuperar el principal del préstamo al subastar la vivienda. Por supuesto, la rentabilidad de ese fondo no es coherente con el riesgo asumido por sus participes, y cuando se asume un riesgo sin ninguna contrapartida, automáticamente se convierte en una mala inversión.
+
+Resumiendo: se han comprado muchos inmuebles en los últimos años utilizando un grandísimo apalancamiento, pues en muchos casos los compradores no disponían ni del dinero para pagar al notario, dicha cantidad tenía que ser incluida en la hipoteca. Todo esto es para hacer la reflexión siguiente: si en los mercados de derivados de todo el mundo se obliga por ley a poner en los folletos coletillas de advertencia de los grandes peligros de operar en futuros, debido al apalancamiento de estos mercados. ¿No debería haberse hecho algo parecido en las promociones de inmuebles cuando los compradores no tenían ni para dar la entrada del piso? ¿ Y, no sería aconsejable que los fondos de inversión estuvieran obligados a publicar el desglose de su cartera por títulos y no por categorías?

@@ -1,0 +1,91 @@
+---
+title: "Cómo salvar a España de la quiebra a pesar de Sanchinflas"
+date: 2025-06-30
+source: https://www.rankia.com/blog/llinares/6891615-como-salvar-espana-quiebra-pesar-sanchinflas
+author: Francisco Llinares Coloma
+blog: Rankia
+---
+
+# Cómo salvar a España de la quiebra a pesar de Sanchinflas
+
+Antes de explicar la única manera de impedir la quiebra de España, quiero decir que hay una solución mucho mejor, que es poner un dictador bueno que implemente el siguiente programa de Gobierno.
+
+Aquí está el programa en PDF para que se puedan consultar los puntos
+
+Pero como el 95% impediría la solución del dictador bueno, pues prefieren a un dictador malo que diga que es progresista y democrático, la única solución, aunque no sea la mejor, es proponer una solución que la pueda aplicar el dictador malo (en este caso Sanchinflas), porque le conviene a él para seguir atornillado a la poltrona.
+
+Hay que tener claro que, aunque por un milagro el Gobierno cambiara de siglas y estuviera formado por el PSOE Azul, que se suele situar a la izquierda del PSOE rojo, esa situación no disminuiría el riesgo de quiebra de España en absoluto. El problema de los azules es su miedo ancestral a que les llamen fachas o ultraderechas, por tanto, nunca harán lo que hay que hacer para salvar a España de la quiebra.
+
+Dejando claro que lo que voy a proponer no es la solución perfecta, sino el mal menor, vamos a entrar en materia, explicando qué problemas pueden hacer quebrar a España, y la única manera de evitarlos.
+
+¿QUÉ PROBLEMAS PUEDEN PROVOCAR LA QUIEBRA DE ESPAÑA?
+
+El mayor riesgo de quiebra es que todos los meses hay que colocar entre 20.000 y 30.000 millones de deuda nueva, para pagar las emisiones de deuda que vencen, los intereses de esa deuda, las pensiones, las nóminas de los funcionarios, el déficit y las exigencias de los que mantienen a Sanchinflas en la Moncloa, que cada mes son más delirantes.
+
+El primer mes que los inversores en deuda impagable lean alguna noticia que los alarme, y decidan comprar oro en vez de deuda basura, España no podrá pagar las emisiones que venzan ese mes. Si España pudiera imprimir euros, pondría la impresora toda la noche y pagaría las emisiones que vencen, pero eso no lo puede hacer, por tanto, si no implementa mi propuesta, se producirá el impago de la deuda.
+
+ANTE LA QUIEBRA INMINENTE EL GOBIERNO TIENE DOS SOLUCIONES
+
+1 - IMPRIMIR PESETAS (LA PEOR)
+
+En esta situación, durante el fin de semana el Gobierno cambia todos los euros de las cuentas con un IBAN español a pesetas recién impresas por la noche.
+
+El problema es que nadie querría tener pesetas, porque cada mes perderían el 5% de su poder adquisitivo como mínimo, y en el mercado negro cada vez te costaría más pesetas comprar un euro. El problema es que todas las hipotecas están nominadas en euros, y es poco probable que las cambiaran a pesetas, porque eso supondría la quiebra de los bancos, ya que los bancos a su vez se han endeudado en euros por el montante total de las hipotecas.
+
+El Gobierno pagaría las pensiones, a los funcionarios, y todas las facturas de las empresas que contratan con el Gobierno en pesetas, y la gente intentaría cambiarlas a euros, y eso produciría una brutal devaluación mensual.
+
+Los comercios tendrían dos precios para el mismo producto. En euros, al mismo precio de antes de meter las pesetas. Y en pesetas que aumentarían de precio cada mes.
+
+Debido a la pérdida de poder adquisitivo de las pesetas, la solución de imprimir pesetas sería inútil al cabo de pocos meses, y en un breve plazo España volvería a estar al borde de la quiebra. Por eso he dicho que esta solución es la peor.
+
+2 - EMITIR BONOS DEL ESTADO AL PORTADOR (LA MENOS MALA)
+
+El Gobierno no puede imprimir euros, pero si que puede emitir bonos del Estado en cualquier cantidad. El problema es que si emite muchos bonos la gente no se los compra, pero eso tiene una solución que les conviene a todos, y que explico a continuación:
+
+DESCRIPCIÓN DE LOS BONOS DEL ESTADO AL PORTADOR
+
+Para que a la gente le convenga mantener esos bonos y no quiera sacárselos de encima apenas le paguen con ellos, tienen que ser ventajosos para la gente de la calle. La gente tiene que preferir ahorrar con los bonos al portador, que tener euros en el banco a plazo fijo.
+
+Se emitirán bonos al portador de 50 euros de nominal, que devengarán un 3.0723% de interés anual acumulativo.
+
+El vencimiento de los bonos al portador será a cien años, pero cualquiera podrá usarlos como dinero, en cualquier momento, por el valor exacto del nominal del bono más el interés acumulado. En el reverso del bono estará impresa la tabla del valor del bono en cada año, desde el 2025 que valdrá 50 euros, en el 2026 el mismo papel tendrá un valor de 51.54 euros, e irá aumentando cada año al 3.0723% de interés anual acumulativo, hasta llegar al vencimiento en el 2124 que valdrá mil euros.
+
+Pongo la tabla del valor anual del bono al portador. El valor que marca la tabla para cada año, se considerará el valor real de ese bono con el que se podrán hacer las compras o pagar los impuestos. La tabla la he hecho como ejemplo para que se entienda el mecanismo, pero se podría optimizar poniendo el valor del bono al portador de manera trimestral, para evitar que todos quieran quedarse con los bonos a final de año, y quieran pagar con ellos al principio de enero, que ya ostentan el valor incrementado por los intereses.
+
+VENTAJAS DEL BONO AL PORTADOR PARA EL PÚBLICO
+
+Para el público es una gran ventaja poder poseer un bono al portador que devenga un interés muy superior a lo que podrían sacar comprando otro tipo de renta fija, o contratando un plazo fijo.
+
+Otra gran ventaja es poder usar el bono en el momento que necesites el dinero, cobrando los intereses sin comisiones, sin retenciones y sin penalización. Estás cobrando un interés de inversión a muy largo plazo, pero puedes disponer de tu dinero en cualquier momento, ya que será obligatoriamente aceptado como dinero de curso legal, por el importe que marque en el reverso, según la fecha.
+
+Otra brutal ventaja es que por el interés devengado no se pagarán impuestos. Ejemplo: si tienes un billete de 50 euros normal y corriente de los que hay en circulación, y un año baja mucho el precio de las patatas, y puedes comprar más kilos de patatas que las que comprabas el año anterior con el mismo billete, no tienes que tributar por esa ganancia de patatas que has tenido. Puesto que por la revalorización del papel moneda no se pagan nunca impuestos (aunque no suele ocurrir casi nunca). En el caso de los bonos al portador, sería imposible saber desde cuándo obran en tu poder y el interés devengado. Por ley, el beneficio obtenido debe estar exento de impuestos.
+
+La ley de Gresham establece que cuando circulan dos tipos de moneda de curso legal con el mismo valor nominal pero diferente valor intrínseco, la moneda de menor valor tiende a desplazar a la de mayor valor, lo que se resume en la frase "el dinero malo desplaza al bueno". En otras palabras, las personas tienden a conservar la moneda de mayor valor (la "buena") y utilizan la de menor valor (la "mala") para realizar transacciones. En el caso que nos ocupa, la gente conservaría un papel que se revaloriza sin pagar impuestos de las ganancias, y se gastaría los euros primero, que pierden poder adquisitivo, o si los pones a plazo fijo te dan una miseria, y pagas impuestos de esa ganancia. Es probable que algunas personas llegaran a ofrecer por un bono al portador, más euros de los que dice en el reverso que vale en esa fecha.
+
+Que la gente ahorrara en bonos y no en euros, sería bueno para los mismos bonos, pues circularían menos de los que la gente querría atesorar, aumentando el valor nominal. Otra ventaja sería que, mientras la gente aceptara esos bonos con preferencia a los euros, España no podría quebrar, pues la quiebra sólo puede ocurrir cuando nadie quiere quedarse con la deuda que se emite. Y una deuda de un país que no puede quebrar, se revaloriza por encima de su valor nominal.
+
+Estos bonos serían la segunda opción para dejar en herencia a los hijos, dentro de una caja de zapatos. Aunque la primera opción sería que la caja estuviera llena de monedas de plata. La ventaja de los bonos es que son dinero de curso legal, y la ventaja de las monedas es que son dinero en todo el mundo.
+
+VENTAJAS PARA EL TESORO DE ESPAÑA
+
+La mayor ventaja es que se alejaría el peligro de quiebra por varias razones:
+
+1 - Mientras la gente acepte el papel que se emite, un Estado no puede quebrar.
+
+2 - Como el vencimiento es a cien años, en cada emisión se rebaja la presión para el siguiente vencimiento.
+
+3 - Como la gente preferiría los bonos al portador, las emisiones anteriores en circulación, intentarían venderlas en el mercado secundario para meter los ahorros en estos bonos, que son más rentables. Pero si mucha gente quiere vender bonos, el precio de los bonos baja. Esto lo podría aprovechar el Gobierno, para recomprar deuda por debajo de su valor nominal, y emitir la misma cantidad de bonos al portador, ganando la diferencia entre el precio pagado y el precio cobrado, además de alargar el vencimiento a cien años.
+
+4 - El Gobierno podría elegir pagar las pensiones, sueldos y facturas de contratos del Estado con las empresas, o bien en bonos al portador, o bien en euros a su elección. Como es muy probable que en el mercado negro los bonos al portador se pagaran por encima de su nominal, el Gobierno podría pagar los gastos en euros, y subastar las nuevas emisiones de bonos al portador, de esa forma conseguiría un mejor precio en cada nueva emisión. Así se subastan ahora las emisiones, y si hay demanda el Gobierno cobra un precio más caro por los mismos bonos.
+
+5 - Seguramente, las agencias de viajes de todo el mundo pujarían con un sobreprecio por estos bonos, para poder ofrecerlos a sus clientes que vinieran a España de vacaciones. Pero cuando los turistas se dieran cuenta que al año siguiente ese papel valdrá más, se lo guardarían y cambiarían su dinero en euros para gastarlos en España.
+
+6 - Estos bonos también serían muy apreciados por los que cometen actividades delictivas. Como el dinero que manejan no lo pueden ingresar en el banco, si usan estos bonos se van revalorizando sin tener que blanquear el dinero.
+
+7 - Las emisiones que hiciera el Estado en años posteriores, deberían ser exactamente igual que la primera emisión, que el año 2025 vale 50 euros, y el año 2124 vale mil euros. Si se hicieran emisiones diferentes, obligaría a las personas a mirar el reverso cada vez que le dan un billete. Si todas las emisiones son iguales, la gente ya sabe el valor que tienen todos los bonos, sin tener que mirar el reverso. Lógicamente, en las subastas de años posteriores, cada año el público tendría que pagar más por el mismo bono.
+
+RESUMEN: Aunque estos bonos no son perfectos, son el mal menor, ya que le convienen a España, a los españoles y al dictador malo de turno que detente el poder en cada momento.
+
+Los que quieran discutir en directo las ventajas y desventajas de estos bonos, o proponer otras soluciones para evitar la quiebra de este desdichado país, lo podrán hacer entrando en el chat de voz del Canal Llinares, el miércoles 2 de julio a las 18 horas.
+
+El coloquio se puede ver grabado aquí.
